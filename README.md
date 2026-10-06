@@ -6,4 +6,4 @@
 
 
 > [!CAUTION]
-> Kelp-Spreader, Apocaly-Doom & Hypno-Squash are skidded!!!
+> Kelp-Spreader, Apocaly-Doom, Hypno-Squash & Stuffed-Melon are skidded!!!
